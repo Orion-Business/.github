@@ -1,5 +1,4 @@
 # Orion Development
-_Your vision, our expertise._ ✨
 
 We are a small, global team of five. **Very flexible, very cheap, and very customer-oriented.** Your scope, your priorities. Delivered. ✅
 
